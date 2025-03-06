@@ -1,1 +1,0 @@
-https://radiopaedia.org/articles/computer-aided-diagnosis-1
